@@ -74,3 +74,11 @@
 - 客服：QQ 2331075246 / 微信 sankouZZZ（售后带订单号）
 
 新店刚开，不刷单、不编评价，好不好用你按上面的清单验完再决定。
+
+---
+
+**本文的其他发布版本（同一套方法，欢迎转发）**
+
+- Telegraph 英文版：https://telegra.ph/How-to-Buy-ChatGPT-Plus-Cheap-Without-Getting-Burned--Formats-and-Warranties-Explained-11-10
+- GitHub Gist 英文版：https://gist.github.com/xwdeshenghuo/1f9b7376e951791bdfeea4b5a9198eb4
+- dev.to 英文版：见仓库历史记录中的 dev.to 教程帖
